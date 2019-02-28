@@ -1,0 +1,1 @@
+Kiberfizični sitemi in internetne stvari, Fakulteta informacijske študije Novo Mesto, študijsko leto 2018/2019
